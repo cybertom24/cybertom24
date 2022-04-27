@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cybertom24
-- 👀 I’m interested in varius topics, like quantum mechanics, electronics, the universe etc...
+- 👀 I’m interested in various topics, like quantum mechanics, electronics, the universe etc...
 - 🌱 I’m currently studying at UniBS, i want to be an electronics engineer!
 - 📫 I'm u/CyberTom_24 on reddit
 
